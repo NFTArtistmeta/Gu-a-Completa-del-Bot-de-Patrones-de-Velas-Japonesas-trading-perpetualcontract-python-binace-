@@ -2,6 +2,10 @@
 Guía Completa del Bot de Patrones de Velas Japonesas - MADE BY ELLIOT66
 
 
+
+https://youtu.be/ql06uwswI6k
+
+
 NO COBRO POR NINGUN DE MIS SERVICIOS SOLO TENGO VENTA PERSONALIZADA DE BOTS
 
 Guía Completa del Bot de Patrones de Velas Japonesas - MADE BY ELLIOT66
